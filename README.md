@@ -18,3 +18,11 @@ Happy Happy Joy Joy Happy Happy Joy Joy
 Happy Happy Joy Joy Joy!
 
 If'n you ain't the granddaddy of all liars Think of the little critters of nature They don't know that they're ugly That's very funny, a fly marrying a bumblebee I told you, 'I'd shoot', but you didn't believe me Why didn't you believe me?
+
+Happy Happy Joy Joy Happy Happy Joy Joy
+Happy Happy Joy Joy Happy Happy Joy Joy
+Happy Happy Joy Joy Happy Happy Joy Joy
+
+Happy Happy Happy Happy
+Happy Happy Happy Happy
+Happy Happy Joy Joy Joy!
